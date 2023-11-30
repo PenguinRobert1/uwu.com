@@ -1,3 +1,3 @@
 # uwu.com
 uwu
-this is a wedsit fo pagwne unblocedngames
+this is a company wedsite for penguin unblockedgames
